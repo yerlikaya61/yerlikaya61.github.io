@@ -3,6 +3,3 @@ Tief unten in der Stille des Ozeans lebt Arielle, die Meerjungfrau. Sie ist die 
 
 ## Tochter von Triton
 
-* wunderschöne
-** Stimme
-** Schönheit
